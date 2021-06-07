@@ -1,5 +1,3 @@
-Hey guys,welcome to VaeCN!
+欢迎访问 VaeCn
 
 音乐纯粹 爱V绝对
-
-@Edison Chen
