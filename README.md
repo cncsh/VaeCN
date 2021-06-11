@@ -4,4 +4,4 @@
 
 Good Night~
 
-Good noon!  6.11
+Good noon!  6.11 星期五
